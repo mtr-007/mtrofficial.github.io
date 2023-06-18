@@ -1,2 +1,2 @@
 # mtrofficial.github.io
-This website is for me Noobs.
+This website is for me Noobs
